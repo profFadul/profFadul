@@ -1,6 +1,6 @@
 
 
-## Hi! I'm Jairo Fadul ✋
+## Hi! I'm Jairo Fadul
 
 ### Electronic Engineer
 
